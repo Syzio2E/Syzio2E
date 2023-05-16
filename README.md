@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Syzio2E<br>👀 <br>🌱 I’m currently learning Web development & Android Development<br>📫 How to reach me @ig_syzio
+👋 Hi, I’m @Syzio2E<br>👀🌱 I’m currently learning Web development & Android Development<br>📫 How to reach me @ig_syzio
 
 
 ## 🌐 Socials:
